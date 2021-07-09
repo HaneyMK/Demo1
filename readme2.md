@@ -1,3 +1,5 @@
-#Read Me 2
+#Read Me 2 Stupid
 
-Salut Bitches Again!! Suckers!!!!
+Salut Assholes Again!! Dickheads!!!!
+
+LOL
